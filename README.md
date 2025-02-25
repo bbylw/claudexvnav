@@ -2,7 +2,7 @@
 
 ![HotLinks Logo](https://i.imgur.com/XXXXX.png)
 
-> 一个由 Claude 3.7 Sonnet AI 辅助开发的现代化网站导航项目，采用类 YouP 风格设计。
+> 一个由 Claude 3.7 Sonnet AI 辅助开发的现代化网站导航项目，采用类 xvideos 风格设计。
 
 ## 🌟 特点
 
